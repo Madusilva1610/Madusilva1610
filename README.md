@@ -1,4 +1,4 @@
-### Boas vindas ao meu peril🖤
+### Boas vindas ao meu perfil🖤
 
 Meu nome é Maria Silva
 
@@ -12,3 +12,4 @@ Meu nome é Maria Silva
 
  @maduSilva1610
  
+![](https://media1.tenor.com/m/TC2mmS3fiAIAAAAC/mimi-mimi-mitsuri.gif)
